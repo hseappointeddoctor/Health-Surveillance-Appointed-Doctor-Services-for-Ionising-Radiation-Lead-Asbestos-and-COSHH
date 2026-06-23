@@ -4,7 +4,7 @@ Contact for Health Surveillance medicals for your workers:
 
 Dr Arun Chind,
 Consultant Occupational Physician
-& HSE Appointed Doctor,
+and HSE Appointed Doctor,
 Proshen Health & Risk Consulting Ltd.,
 Wakefield WF2 8AH,
 England, United Kingdom.
